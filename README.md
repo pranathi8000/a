@@ -1,8 +1,8 @@
 # P. Pranathi
 
-🎓 Bachelor of Computer Applications (BCA) Student | Class of 2026  
-💻 Aspiring IT Support / Technical Support Professional  
-📍 Hubli, Karnataka, India  
+ Bachelor of Computer Applications (BCA) Student | Class of 2026  
+ Aspiring IT Support / Technical Support Professional  
+ Hubli, Karnataka, India  
 
 ---
 
